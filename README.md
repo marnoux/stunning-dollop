@@ -1,1 +1,1 @@
-### Alcohol gives you infinite patience for stupidity.
+### Italians know about human nature - they understand human nature perhaps better than anyone else does. They know that people are weak and greedy and lazy and dishonest and they just try to make the best of it to work around it.
