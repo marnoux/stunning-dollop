@@ -1,1 +1,1 @@
-#My mom brought me up to believe that my talent is a gift and a blessing.
+### When I heard the royal family wanted to have me perform in celebration of Prince William's marriage, I knew I had to give them a little something. 'Wet' is the perfect anthem for Prince William or any playa to get the club smokin'.
