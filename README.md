@@ -1,1 +1,1 @@
-### There is only one failure in life possible, and that is not to be true to the best one knows.
+### Alcohol gives you infinite patience for stupidity.
