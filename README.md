@@ -1,1 +1,1 @@
-### I mean, for all of his faults and the troubles in his marriage, Bill Clinton is still married to a girl he met in the library 25 years ago at school. Can we say that about many of our other leaders today in America, including on the right wing?
+### Never be afraid to try, remember... Amateurs built the ark, Professionals built the Titanic.
