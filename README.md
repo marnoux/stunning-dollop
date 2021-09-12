@@ -1,1 +1,1 @@
-### Never be afraid to try, remember... Amateurs built the ark, Professionals built the Titanic.
+### John Ford was so funny that I couldn't wait to go to work in the morning.
