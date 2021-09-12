@@ -1,1 +1,1 @@
-### Parents are key when it comes to keeping kids off drugs. Good parenting is the best anti-drug we have.
+### There is only one failure in life possible, and that is not to be true to the best one knows.
