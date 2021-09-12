@@ -1,1 +1,1 @@
-### John Ford was so funny that I couldn't wait to go to work in the morning.
+### Parents are key when it comes to keeping kids off drugs. Good parenting is the best anti-drug we have.
