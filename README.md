@@ -1,1 +1,1 @@
-### There is no excellent beauty that hath not some strangeness in the proportion.
+### Attitudes are more important than facts.
