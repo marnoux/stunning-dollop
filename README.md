@@ -1,1 +1,1 @@
-### It's a question of keeping one's eyes and ears open and watching how other people play the game. They're watching me too, to see what my attitude is like.
+### There is no excellent beauty that hath not some strangeness in the proportion.
