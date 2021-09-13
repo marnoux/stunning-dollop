@@ -1,1 +1,1 @@
-### Italians know about human nature - they understand human nature perhaps better than anyone else does. They know that people are weak and greedy and lazy and dishonest and they just try to make the best of it to work around it.
+### Don't be afraid to give your best to what seemingly are small jobs. Every time you conquer one it makes you that much stronger. If you do the little jobs well, the big ones will tend to take care of themselves.
