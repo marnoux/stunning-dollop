@@ -1,1 +1,1 @@
-### In a still hot morning, the tide went out and didn't come back in. This was not a spectacular event. The sea did not roll up like a scroll, like the sky in Revelations. It quietly withdrew.
+### The way to preserve the peace of the church is to preserve its purity.
