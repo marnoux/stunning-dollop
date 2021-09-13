@@ -1,1 +1,1 @@
-### Oh who can tell the range of joy or set the bounds of beauty?
+### Beauty is variable, ugliness is constant.
