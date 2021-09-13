@@ -1,1 +1,1 @@
-### If you want to conquer fear, don't sit home and think about it. Go out and get busy.
+### In a still hot morning, the tide went out and didn't come back in. This was not a spectacular event. The sea did not roll up like a scroll, like the sky in Revelations. It quietly withdrew.
