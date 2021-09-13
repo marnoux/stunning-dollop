@@ -1,1 +1,1 @@
-### We are a people that have always celebrated other people's success so long as we always had the opportunity to meet that success ourselves. That is the American nature. That is the American character. That is one of the things that makes us different from the rest of the world. And I'm afraid we could lose that or are on the verge of losing that.
+### If you want to conquer fear, don't sit home and think about it. Go out and get busy.
