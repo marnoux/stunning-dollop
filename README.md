@@ -1,1 +1,1 @@
-### Reasonable men adapt to the world around them unreasonable men make the world adapt to them. The world is changed by unreasonable men.
+### Men's vows are women's traitors!
