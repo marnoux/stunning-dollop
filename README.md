@@ -1,1 +1,1 @@
-### Attitudes are more important than facts.
+### Oh who can tell the range of joy or set the bounds of beauty?
