@@ -1,1 +1,1 @@
-### The way to preserve the peace of the church is to preserve its purity.
+### I've never really been very good at marriage. It's one of my failures. I've tried my best, but I do realise the common denominator is me it's something I'm doing.
