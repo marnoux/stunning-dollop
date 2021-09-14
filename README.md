@@ -1,1 +1,1 @@
-### I've never really been very good at marriage. It's one of my failures. I've tried my best, but I do realise the common denominator is me it's something I'm doing.
+### Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.
