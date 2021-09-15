@@ -1,1 +1,1 @@
-### I didn't grow up thinking of movies as film, or art, but as movies, something to do on a Saturday afternoon.
+### I will not attack your doctrines nor your creeds if they accord liberty to me. If they hold thought to be dangerous - if they aver that doubt is a crime, then I attack them one and all, because they enslave the minds of men.
