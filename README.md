@@ -1,1 +1,1 @@
-### Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.
+### I love such mirth as does not make friends ashamed to look upon one another next morning.
