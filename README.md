@@ -1,1 +1,1 @@
-### Hollywood's a very weird place. I think there's less of everything except for attitude.
+### The best thing about giving of ourselves is that what we get is always better than what we give. The reaction is greater than the action.
