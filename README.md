@@ -1,1 +1,1 @@
-### The best thing about giving of ourselves is that what we get is always better than what we give. The reaction is greater than the action.
+### France is a place where the money falls apart in your hands but you can't tear the toilet paper.
