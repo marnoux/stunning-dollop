@@ -1,1 +1,1 @@
-### If you make music for the human needs you have within yourself, then you do it for all humans who need the same things. You enrich humanity with the profound expression of these feelings.
+### Being a movie star, and this applies to all of them, means being looked at from every possible direction. You are never left at peace, you're just fair game.
