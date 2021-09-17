@@ -1,1 +1,1 @@
-### France is a place where the money falls apart in your hands but you can't tear the toilet paper.
+### If you make music for the human needs you have within yourself, then you do it for all humans who need the same things. You enrich humanity with the profound expression of these feelings.
