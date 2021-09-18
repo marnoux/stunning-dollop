@@ -1,1 +1,1 @@
-### Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.
+### I used to go to Bourbon Street when I was a kid and there would be club after club after club of people who were around when the music started. I mean these are legendary, maybe not so well known, but legendary musicians.
