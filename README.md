@@ -1,1 +1,1 @@
-### Being a movie star, and this applies to all of them, means being looked at from every possible direction. You are never left at peace, you're just fair game.
+### Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.
