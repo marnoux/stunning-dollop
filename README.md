@@ -1,1 +1,1 @@
-### I used to go to Bourbon Street when I was a kid and there would be club after club after club of people who were around when the music started. I mean these are legendary, maybe not so well known, but legendary musicians.
+### I like to hang out with my friends. I love music. I like to go to the movies. I like to eat. I like to cook.
