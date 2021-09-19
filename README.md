@@ -1,1 +1,1 @@
-### I like to hang out with my friends. I love music. I like to go to the movies. I like to eat. I like to cook.
+### Change your thoughts, change your life!
