@@ -1,1 +1,1 @@
-### Even if people do wrong, we're social animals, so what can we do about stopping them doing the same things in future? Saying people are 'bad' or 'evil' is just an unwillingness to engage an unwillingness to try to empathise. That sanctimonious attitude doesn't help anyone.
+### I've run the Boston Marathon 6 times before. I think the best aspects of the marathon are the beautiful changes of the scenery along the route and the warmth of the people's support. I feel happier every time I enter this marathon.
