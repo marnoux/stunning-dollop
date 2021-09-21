@@ -1,1 +1,1 @@
-### Funny is an attitude.
+### Paris is one of the most beautiful places in all the world. Unfortunately, I was so homesick I couldn't appreciate its beauty.
