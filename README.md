@@ -1,1 +1,1 @@
-### I've run the Boston Marathon 6 times before. I think the best aspects of the marathon are the beautiful changes of the scenery along the route and the warmth of the people's support. I feel happier every time I enter this marathon.
+### Funny is an attitude.
