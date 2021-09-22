@@ -1,1 +1,1 @@
-### I believe the accepted model of capitalism that demands endless growth deserves the blame for the destruction of nature, and it should be displaced. Failing that, I try to work with those companies and help them change the way they think about our resources.
+### Give to everyone who begs from you and of him who takes away your goods do not ask them again. And as you wish that men would do to you, do so to them.
