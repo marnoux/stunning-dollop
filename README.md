@@ -1,1 +1,1 @@
-### Paris is one of the most beautiful places in all the world. Unfortunately, I was so homesick I couldn't appreciate its beauty.
+### I believe the accepted model of capitalism that demands endless growth deserves the blame for the destruction of nature, and it should be displaced. Failing that, I try to work with those companies and help them change the way they think about our resources.
