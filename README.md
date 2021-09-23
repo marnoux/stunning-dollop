@@ -1,1 +1,1 @@
-### Medical science has proven time and again that when the resources are provided, great progress in the treatment, cure, and prevention of disease can occur.
+### My mom is in the navy and my dad works for the army, but I never called them 'sir' or 'ma'am' or anything like that, and we never really moved around a lot because both my parents were stationed in D.C.
