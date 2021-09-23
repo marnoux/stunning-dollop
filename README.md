@@ -1,1 +1,1 @@
-### Give to everyone who begs from you and of him who takes away your goods do not ask them again. And as you wish that men would do to you, do so to them.
+### Medical science has proven time and again that when the resources are provided, great progress in the treatment, cure, and prevention of disease can occur.
