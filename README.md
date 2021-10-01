@@ -1,1 +1,1 @@
-### I can write all the way through the morning, when my mind is clear, and there are no distractions.
+### I love Christmas. Frosty the Snowman, peace on Earth and mangers, Salvation Army bell ringers and reindeer, the movie 'Meet Me in St. Louis,' office parties and cookies.
