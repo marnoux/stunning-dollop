@@ -1,1 +1,1 @@
-### If women are supposed to be less rational and more emotional at the beginning of our menstrual cycle when the female hormone is at its lowest level, then why isn't it logical to say that, in those few days, women behave the most like the way men behave all month long?
+### We awaken in others the same attitude of mind we hold toward them.
