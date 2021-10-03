@@ -1,1 +1,1 @@
-### We awaken in others the same attitude of mind we hold toward them.
+### The sort of thinking at the time was, 'Well, we're giving you access to medical care which you wouldn't otherwise be able to get, so your payment is that we get to use you in research.'
