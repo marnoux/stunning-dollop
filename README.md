@@ -1,1 +1,1 @@
-### The sort of thinking at the time was, 'Well, we're giving you access to medical care which you wouldn't otherwise be able to get, so your payment is that we get to use you in research.'
+### Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.
