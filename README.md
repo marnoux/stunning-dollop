@@ -1,1 +1,1 @@
-### Our lives are not determined by what happens to us but how we react to what happens, not by what life brings us but the attitude we bring to life.
+### People think, 'She's a model. She must have such an attitude. She must be so stuck up.' But I'm normal. I cry. I'm not rich. I drive a 1987 Chevrolet Celebrity.
