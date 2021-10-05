@@ -1,1 +1,1 @@
-### They don't like thinking in medical school. They memorize - that's all they want you to do. You must not think.
+### Whether it be a matter of personal relations within a marriage or political initiatives within a peace process, there is no sure-fire do-it-yourself kit.
