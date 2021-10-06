@@ -1,1 +1,1 @@
-### Whether it be a matter of personal relations within a marriage or political initiatives within a peace process, there is no sure-fire do-it-yourself kit.
+### I can't stop being in parades. I just love dancing on floats that move really slowly on the city streets in the early morning.
