@@ -1,1 +1,1 @@
-### I can't stop being in parades. I just love dancing on floats that move really slowly on the city streets in the early morning.
+### Unless our conception of patriotism is progressive, it cannot hope to embody the real affection and the real interest of the nation.
