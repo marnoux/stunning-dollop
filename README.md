@@ -1,1 +1,1 @@
-### Unless our conception of patriotism is progressive, it cannot hope to embody the real affection and the real interest of the nation.
+### Men's arguments often prove nothing but their wishes.
