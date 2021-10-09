@@ -1,1 +1,1 @@
-### Quite often - a lot of the work I had done had been extensively with women. Most especially in the theater, but also quite often in the movies. That has its own delights, and maybe pitfalls too.
+### How can a doctor judge a woman's sanity by merely bidding her good morning and refusing to hear her pleas for release? Even the sick ones know it is useless to say anything, for the answer will be that it is their imagination.
