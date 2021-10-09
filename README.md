@@ -1,1 +1,1 @@
-### When I was six years old my friend was auditioning for 'Annie,' and I decided I wanted to audition with her. My mom was worried I would fall flat on my face because I'd never opened my mouth to sing, so she sent me to vocal lessons. I did the audition and fell in love with the entire process of a show.
+### Quite often - a lot of the work I had done had been extensively with women. Most especially in the theater, but also quite often in the movies. That has its own delights, and maybe pitfalls too.
