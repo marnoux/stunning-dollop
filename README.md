@@ -1,1 +1,1 @@
-### How can a doctor judge a woman's sanity by merely bidding her good morning and refusing to hear her pleas for release? Even the sick ones know it is useless to say anything, for the answer will be that it is their imagination.
+### Marriage to Fernando offered shelter and security, but the shackle was the price I'd pay.
