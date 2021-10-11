@@ -1,1 +1,1 @@
-### A witty woman is a treasure a witty beauty is a power.
+### Where there are large powers with little ambition... nature may be said to have fallen short of her purposes.
