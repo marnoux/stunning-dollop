@@ -1,1 +1,1 @@
-### Where there are large powers with little ambition... nature may be said to have fallen short of her purposes.
+### I can have peace of mind only when I forgive rather than judge.
