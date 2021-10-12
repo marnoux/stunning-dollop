@@ -1,1 +1,1 @@
-### I can have peace of mind only when I forgive rather than judge.
+### Ensuring Americans have access to adequate medical care should be a priority for all of us.
