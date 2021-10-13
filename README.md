@@ -1,1 +1,1 @@
-### Ensuring Americans have access to adequate medical care should be a priority for all of us.
+### You know, who cares about seeing the girls when everybody wants to see the band. That's what's important, KISS is important. I think we look great, and the attitude is there, and I'm real happy with it.
