@@ -1,1 +1,1 @@
-### You know, who cares about seeing the girls when everybody wants to see the band. That's what's important, KISS is important. I think we look great, and the attitude is there, and I'm real happy with it.
+### I can be in 20 movies. But I'll never be an actor.
