@@ -1,1 +1,1 @@
-### I can be in 20 movies. But I'll never be an actor.
+### If I were asked to name the chief benefit of the house, I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.
