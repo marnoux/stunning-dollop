@@ -1,1 +1,1 @@
-### If I were asked to name the chief benefit of the house, I should say: the house shelters day-dreaming, the house protects the dreamer, the house allows one to dream in peace.
+### Although I'm an atheist who believes only in great nature, I recognize the spiritual richness and grandeur of the Roman Catholicism in which I was raised.
