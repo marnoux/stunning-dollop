@@ -1,1 +1,1 @@
-### I get up, go and get a coffee, and go do the crossword - I'm loyal to one particular paper, the 'Guardian' - and that's my idea of a perfect morning.
+### Taking pre-natal vitamins can minimise birth defects and can lower the chances both of morning sickness and premature delivery.
