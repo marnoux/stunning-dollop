@@ -1,1 +1,1 @@
-### Although I'm an atheist who believes only in great nature, I recognize the spiritual richness and grandeur of the Roman Catholicism in which I was raised.
+### I get up, go and get a coffee, and go do the crossword - I'm loyal to one particular paper, the 'Guardian' - and that's my idea of a perfect morning.
