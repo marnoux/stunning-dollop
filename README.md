@@ -1,1 +1,1 @@
-### Taking pre-natal vitamins can minimise birth defects and can lower the chances both of morning sickness and premature delivery.
+### If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.
