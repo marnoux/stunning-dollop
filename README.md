@@ -1,1 +1,1 @@
-### If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.
+### Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!
