@@ -1,1 +1,1 @@
-### Oh! this opponent, this collaborator against your will, whose notion of beauty always differs from yours and whose means are often too limited for active assistance to your intentions!
+### Listening to medical facts was not enough. People wanted one hundred percent guarantees.
