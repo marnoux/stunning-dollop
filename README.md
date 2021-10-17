@@ -1,1 +1,1 @@
-### Listening to medical facts was not enough. People wanted one hundred percent guarantees.
+### Parenting is the most important job on the planet next to keeping Gary Busey off the nation's highways.
