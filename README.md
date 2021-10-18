@@ -1,1 +1,1 @@
-### Parenting is the most important job on the planet next to keeping Gary Busey off the nation's highways.
+### I naturally wanted to be saved, so when I came home I told my mom I wanted to be confirmed. That's the way I related to it, being raised an Episcopalian. I went to Dallas and got confirmed.
