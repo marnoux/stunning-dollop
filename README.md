@@ -1,1 +1,1 @@
-### My mother and stepfather were married 43 years, so I have watched a long marriage. I feel like I had a very good role model for that. And, you know, it's just a number.
+### My dad was a good athlete. My mom had longevity. There were some athletic genes that certainly got passed down.
