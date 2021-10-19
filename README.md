@@ -1,1 +1,1 @@
-### What we see is mainly what we look for.
+### My mother and stepfather were married 43 years, so I have watched a long marriage. I feel like I had a very good role model for that. And, you know, it's just a number.
