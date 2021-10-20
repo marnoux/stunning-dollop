@@ -1,1 +1,1 @@
-### My dad was a good athlete. My mom had longevity. There were some athletic genes that certainly got passed down.
+### A fool and his money are soon parted.
