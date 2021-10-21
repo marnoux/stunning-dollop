@@ -1,1 +1,1 @@
-### I get up at sunrise. I'm a Buddhist, so I chant in the morning. My wife and I sit and have coffee together, but then it's list-making time. I have carpentry projects. We have roads we keep in repair. It's not back-breaking, but it's certainly aerobic and mildly strenuous.
+### Character contributes to beauty. It fortifies a woman as her youth fades. A mode of conduct, a standard of courage, discipline, fortitude, and integrity can do a great deal to make a woman beautiful.
