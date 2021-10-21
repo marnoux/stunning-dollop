@@ -1,1 +1,1 @@
-### Character contributes to beauty. It fortifies a woman as her youth fades. A mode of conduct, a standard of courage, discipline, fortitude, and integrity can do a great deal to make a woman beautiful.
+### It has always been a mystery to me how men can feel themselves honoured by the humiliation of their fellow beings.
