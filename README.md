@@ -1,1 +1,1 @@
-### It has always been a mystery to me how men can feel themselves honoured by the humiliation of their fellow beings.
+### I have a huge respect for writers and realise that this is not an area that I find easy. I doubt that I would have the patience in front of a blank sheet of paper to become a writer.
