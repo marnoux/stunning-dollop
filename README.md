@@ -1,1 +1,1 @@
-### I have a huge respect for writers and realise that this is not an area that I find easy. I doubt that I would have the patience in front of a blank sheet of paper to become a writer.
+### People in tough times - it doesn't mean they don't have a great attitude.
