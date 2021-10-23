@@ -1,1 +1,1 @@
-### People in tough times - it doesn't mean they don't have a great attitude.
+### I did know Ted Hughes and I partly wrote the book to explain to myself and others the complexities of a marriage that was for six years wonderfully productive of poetry and then ended in tragedy.
