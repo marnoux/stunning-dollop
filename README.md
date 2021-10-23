@@ -1,1 +1,1 @@
-### I did know Ted Hughes and I partly wrote the book to explain to myself and others the complexities of a marriage that was for six years wonderfully productive of poetry and then ended in tragedy.
+### Deregulation created this epidemic of greed which according to the rules of capitalism was OK. Beyond that there was criminal behaviour. There have been no repercussions and it's hard to make your peace with.
