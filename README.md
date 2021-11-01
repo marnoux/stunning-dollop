@@ -1,1 +1,1 @@
-### I'm a morning person because I learned to write my novels while still practicing law. I would get to the office at 6:30 a.m. and write until other people arrived, around 9. Now I still do that. I start at 6:30 or 7, and I'll write until 11, then take an hour off, then work until about 2 p.m. By then my brain has had enough.
+### I read Freud's Introductory Lectures in Psychoanalysis in basically one sitting. I decided to enroll in medical school. It was almost like a conversion experience.
