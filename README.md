@@ -1,1 +1,1 @@
-### We need to accept the seemingly obvious fact that a toxic environment can make people sick and that no amount of medical intervention can protect us. The health care community must become a powerful political lobby for environmental policy and legislation.
+### Few things are impracticable in themselves and it is for want of application, rather than of means, that men fail to succeed.
