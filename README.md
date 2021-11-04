@@ -1,1 +1,1 @@
-### Few things are impracticable in themselves and it is for want of application, rather than of means, that men fail to succeed.
+### Crime is terribly revealing. Try and vary your methods as you will, your tastes, your habits, your attitude of mind, and your soul is revealed by your actions.
