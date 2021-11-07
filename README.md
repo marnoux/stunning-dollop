@@ -1,1 +1,1 @@
-### Crime is terribly revealing. Try and vary your methods as you will, your tastes, your habits, your attitude of mind, and your soul is revealed by your actions.
+### If the sight of the blue skies fills you with joy, if the simplest things of nature have a message that you understand, rejoice, for your soul is alive.
