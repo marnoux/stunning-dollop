@@ -1,1 +1,1 @@
-### If the sight of the blue skies fills you with joy, if the simplest things of nature have a message that you understand, rejoice, for your soul is alive.
+### He is the best sailor who can steer within fewest points of the wind, and exact a motive power out of the greatest obstacles.
