@@ -1,1 +1,1 @@
-### He is the best sailor who can steer within fewest points of the wind, and exact a motive power out of the greatest obstacles.
+### If you can miss getting up in the morning and running into a wall, I miss playing football. I'll never be a frustrated athlete.
