@@ -1,1 +1,1 @@
-### I've always had questions about what it meant to be a protester, to be in the minority. Are the people who are trying to find peace, who are trying to have the Constitution apply to everybody, are they really the radicals? We're not protesting from the outside. We're inside.
+### Experience taught me a few things. One is to listen to your gut, no matter how good something sounds on paper. The second is that you're generally better off sticking with what you know. And the third is that sometimes your best investments are the ones you don't make.
