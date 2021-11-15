@@ -1,1 +1,1 @@
-### The ideal has many names, and beauty is but one of them.
+### I'm taking a bit of a wait-and-see attitude towards 3D.
