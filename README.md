@@ -1,1 +1,1 @@
-### I'm taking a bit of a wait-and-see attitude towards 3D.
+### I grew up painting and playing piano so when I was a little kid I thought I was going to be an artist or a painter but my mom had me taking piano lessons for about 10-12 years as a young kid.
