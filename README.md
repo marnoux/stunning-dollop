@@ -1,1 +1,1 @@
-### I grew up painting and playing piano so when I was a little kid I thought I was going to be an artist or a painter but my mom had me taking piano lessons for about 10-12 years as a young kid.
+### Beauty is the first present nature gives to women and the first it takes away.
