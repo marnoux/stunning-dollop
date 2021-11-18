@@ -1,1 +1,1 @@
-### Beauty is the first present nature gives to women and the first it takes away.
+### You either get tired fighting for peace, or you die.
