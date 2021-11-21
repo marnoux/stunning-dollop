@@ -1,1 +1,1 @@
-### You either get tired fighting for peace, or you die.
+### At fifteen, beauty and talent do not exist there can only be promise of the coming woman.
