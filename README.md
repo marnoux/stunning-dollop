@@ -1,1 +1,1 @@
-### You know when you're young and you see a play in high school, and the guys all have gray in their hair and they're trying to be old men and they have no idea what that's like? It's just that stupid the other way around.
+### Music is a great natural high and a great natural escape.
