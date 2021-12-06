@@ -1,1 +1,1 @@
-### My mom really instilled in me that I'm beautiful and I can do anything, and I echo that now with my own girls.
+### We still have people in the active duty, and if people are feeling ill, if they're experiencing various symptoms and they're still in the active duty, they're less likely to come forward because that could result in their medical discharge.
