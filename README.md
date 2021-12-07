@@ -1,1 +1,1 @@
-### We still have people in the active duty, and if people are feeling ill, if they're experiencing various symptoms and they're still in the active duty, they're less likely to come forward because that could result in their medical discharge.
+### Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
