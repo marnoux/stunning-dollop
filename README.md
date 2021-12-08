@@ -1,1 +1,1 @@
-### Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
+### I'd say it's been my biggest problem all my life... it's money. It takes a lot of money to make these dreams come true.
