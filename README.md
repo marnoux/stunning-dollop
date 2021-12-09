@@ -1,1 +1,1 @@
-### I'd say it's been my biggest problem all my life... it's money. It takes a lot of money to make these dreams come true.
+### Depending on what day of the week it is and what time of the month it is, I'm a good friend or not a good friend. I'm more or less a good mom or not a good mom, more or less a good mate or not a good mate. That's just life, whether or not you're public.
