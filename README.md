@@ -1,1 +1,1 @@
-### Beauty in distress is much the most affecting beauty.
+### My mom has a good way of engaging me in a conversation about the choices I make, listening, being objective and open-minded, and respecting those choices so long as they don't put me in danger.
