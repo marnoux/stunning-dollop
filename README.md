@@ -1,1 +1,1 @@
-### All things are perceived in the light of charity, and hence under the aspect of beauty for beauty is simply reality seen with the eyes of love.
+### If you have confidence you have patience. Confidence, that is everything.
