@@ -1,1 +1,1 @@
-### We hold these truths to be self-evident: that all men are created equal that they are endowed by their Creator with certain unalienable rights that among these are life, liberty, and the pursuit of happiness.
+### All things are perceived in the light of charity, and hence under the aspect of beauty for beauty is simply reality seen with the eyes of love.
