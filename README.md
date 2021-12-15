@@ -1,1 +1,1 @@
-### If you have confidence you have patience. Confidence, that is everything.
+### I'm hosting weekend retreats all over America. It is like a 24-hour slumber party for moms. We laugh, eat, play games, get massages, win prizes, talk about parenting and even cry a bit.
