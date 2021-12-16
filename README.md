@@ -1,1 +1,1 @@
-### I'm hosting weekend retreats all over America. It is like a 24-hour slumber party for moms. We laugh, eat, play games, get massages, win prizes, talk about parenting and even cry a bit.
+### My dad never blew anything up, but he probably had friends who did. He and my mom have always preached that the pen is mightier than a Molotov cocktail.
