@@ -1,1 +1,1 @@
-### My dad never blew anything up, but he probably had friends who did. He and my mom have always preached that the pen is mightier than a Molotov cocktail.
+### If you put all your strength and faith and vigor into a job and try to do the best you can, the money will come.
