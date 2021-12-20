@@ -1,1 +1,1 @@
-### If you put all your strength and faith and vigor into a job and try to do the best you can, the money will come.
+### I try to give to the poor people for love what the rich could get for money. No, I wouldn't touch a leper for a thousand pounds yet I willingly cure him for the love of God.
