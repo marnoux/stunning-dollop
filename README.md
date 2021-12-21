@@ -1,1 +1,1 @@
-### I try to give to the poor people for love what the rich could get for money. No, I wouldn't touch a leper for a thousand pounds yet I willingly cure him for the love of God.
+### The use and threat of force, when world peace is not in danger, are no longer valid frames of reference for achieving the ends sought today by sovereign nations.
