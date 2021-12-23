@@ -1,1 +1,1 @@
-### We have to get back to the beauty of just being alive in this present moment.
+### Americans will listen, but they do not care to read. War and Peace must wait for the leisure of retirement, which never really comes: meanwhile it helps to furnish the living room.
