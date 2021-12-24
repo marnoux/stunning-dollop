@@ -1,1 +1,1 @@
-### Americans will listen, but they do not care to read. War and Peace must wait for the leisure of retirement, which never really comes: meanwhile it helps to furnish the living room.
+### I did the best I could, and in some arenas, my best was not good enough. I've made some bad choices.
