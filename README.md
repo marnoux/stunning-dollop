@@ -1,1 +1,1 @@
-### I believe that history has shape, order, and meaning that exceptional men, as much as economic forces, produce change and that passe abstractions like beauty, nobility, and greatness have a shifting but continuing validity.
+### I'd lose my mind if I heard my kid call the nanny Mommy.
