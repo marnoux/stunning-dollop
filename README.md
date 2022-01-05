@@ -1,1 +1,1 @@
-### I'd lose my mind if I heard my kid call the nanny Mommy.
+### Coaches will eventually notice a great attitude, and they respect that.
