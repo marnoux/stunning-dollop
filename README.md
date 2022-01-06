@@ -1,1 +1,1 @@
-### Coaches will eventually notice a great attitude, and they respect that.
+### Like success, failure is many things to many people. With Positive Mental Attitude, failure is a learning experience, a rung on the ladder, a plateau at which to get your thoughts in order and prepare to try again.
