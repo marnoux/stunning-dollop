@@ -1,1 +1,1 @@
-### Like success, failure is many things to many people. With Positive Mental Attitude, failure is a learning experience, a rung on the ladder, a plateau at which to get your thoughts in order and prepare to try again.
+### The Founders recognized that Government is quite literally a necessary evil, that there must be opposition, between its various branches, and between political parties, for these are the only ways to temper the individual's greed for power and the electorates' desires for peace by submission to coercion or blandishment.
