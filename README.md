@@ -1,1 +1,1 @@
-### The Founders recognized that Government is quite literally a necessary evil, that there must be opposition, between its various branches, and between political parties, for these are the only ways to temper the individual's greed for power and the electorates' desires for peace by submission to coercion or blandishment.
+### My mom taught me how to make grilled chicken, and I bake, too.
