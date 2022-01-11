@@ -1,1 +1,1 @@
-### My mom taught me how to make grilled chicken, and I bake, too.
+### You can't wait for inspiration. You have to go after it with a club.
