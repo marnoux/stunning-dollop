@@ -1,1 +1,1 @@
-### You can't wait for inspiration. You have to go after it with a club.
+### As I grew older, I realized that it was much better to insist on the genuine forms of nature, for simplicity is the greatest adornment of art.
