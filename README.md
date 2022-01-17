@@ -1,1 +1,1 @@
-### Girls have an unfair advantage over men: if they can't get what they want by being smart, they can get it by being dumb.
+### It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws.
