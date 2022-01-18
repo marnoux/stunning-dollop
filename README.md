@@ -1,1 +1,1 @@
-### It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws.
+### Human nature is such that monogamy is a really hard thing to achieve.
