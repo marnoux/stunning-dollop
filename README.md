@@ -1,1 +1,1 @@
-### Human nature is such that monogamy is a really hard thing to achieve.
+### What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.
