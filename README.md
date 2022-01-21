@@ -1,1 +1,1 @@
-### The need for peace in Northern Ireland goes well beyond political stability. It now speaks to regional Europe and even global stability.
+### This house was our dream-the gardens, the study, even the swimming pool. Even though I can't see John when I wake up in the morning, I can always feel him here with me.
