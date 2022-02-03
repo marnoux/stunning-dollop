@@ -1,1 +1,1 @@
-### Music is about communication... it isn't just something that maybe physically sounds good or orally sounds interesting it's something far, far deeper than that.
+### Girls have an unfair advantage over men: if they can't get what they want by being smart, they can get it by being dumb.
