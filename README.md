@@ -1,1 +1,1 @@
-### Girls have an unfair advantage over men: if they can't get what they want by being smart, they can get it by being dumb.
+### Make no little plans they have no magic to stir men's blood.
