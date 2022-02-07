@@ -1,1 +1,1 @@
-### Make no little plans they have no magic to stir men's blood.
+### Even top caliber hospitals cannot escape medical mistakes that sometimes result in irreparable damage to patients.
