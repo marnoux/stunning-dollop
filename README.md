@@ -1,1 +1,1 @@
-### Even top caliber hospitals cannot escape medical mistakes that sometimes result in irreparable damage to patients.
+### Never go to a doctor whose office plants have died.
