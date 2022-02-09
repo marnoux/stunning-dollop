@@ -1,1 +1,1 @@
-### Never go to a doctor whose office plants have died.
+### Aristotle could have avoided the mistake of thinking that women have fewer teeth than men, by the simple device of asking Mrs. Aristotle to keep her mouth open while he counted.
