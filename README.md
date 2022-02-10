@@ -1,1 +1,1 @@
-### Aristotle could have avoided the mistake of thinking that women have fewer teeth than men, by the simple device of asking Mrs. Aristotle to keep her mouth open while he counted.
+### When I get up in the morning I brush my teeth and go about my business, and if I am going anywhere interesting I take my camera along.
