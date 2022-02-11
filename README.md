@@ -1,1 +1,1 @@
-### When I get up in the morning I brush my teeth and go about my business, and if I am going anywhere interesting I take my camera along.
+### If you can't get rid of the skeleton in your closet, you'd best teach it to dance.
