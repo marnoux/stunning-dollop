@@ -1,1 +1,1 @@
-### If you can't get rid of the skeleton in your closet, you'd best teach it to dance.
+### I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.
