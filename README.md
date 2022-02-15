@@ -1,1 +1,1 @@
-### I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it.
+### Every great film should seem new every time you see it.
