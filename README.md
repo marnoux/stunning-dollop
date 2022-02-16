@@ -1,1 +1,1 @@
-### Every great film should seem new every time you see it.
+### It says something about this new global economy that USA Today now reports every morning on the day's events in Asian markets.
