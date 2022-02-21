@@ -1,1 +1,1 @@
-### When we take our eyes off the whirl of day-to-day activity and concentrate on honoring Him and following in His way, we find a consistent peace that carries us through both plenty and poverty.
+### They very seldom let me lose my cool. They made me like I was Polly Perfect, which was ridiculous so that when I bump into kids on the street they'd say 'I wish my Mom were like you.'
