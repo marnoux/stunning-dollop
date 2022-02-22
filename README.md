@@ -1,1 +1,1 @@
-### They very seldom let me lose my cool. They made me like I was Polly Perfect, which was ridiculous so that when I bump into kids on the street they'd say 'I wish my Mom were like you.'
+### My mom was a Democrat and I was scared to death that she was gonna blow it. First I was going to hell with Monroe, and now to Republican hell with Nixon.
