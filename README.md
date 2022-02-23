@@ -1,1 +1,1 @@
-### My mom was a Democrat and I was scared to death that she was gonna blow it. First I was going to hell with Monroe, and now to Republican hell with Nixon.
+### I like my home and I like the nature.
