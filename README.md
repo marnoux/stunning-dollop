@@ -1,1 +1,1 @@
-### I like my home and I like the nature.
+### I always wanted to be a young mom, but generations of women have worked so hard so we can have a career and wait to have children. So I say carpe diem - take advantage of that.
