@@ -1,1 +1,1 @@
-### We have the best government that money can buy.
+### But if our nation goes over a financial Niagara, we won't have much strength and, eventually, we won't have peace. We are currently borrowing the entire defense budget from foreign investors. Within a few years, we will be spending more on interest payments than on national security. That is not, as our military friends say, a 'robust strategy.'
