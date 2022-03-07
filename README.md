@@ -1,1 +1,1 @@
-### Truth is, I cut my hair for freedom, not for beauty.
+### My mom put me and my sisters in the water to feel comfortable, to have water safety.
