@@ -1,1 +1,1 @@
-### My mom put me and my sisters in the water to feel comfortable, to have water safety.
+### There is always inequality in life. Some men are killed in a war and some men are wounded and some men never leave the country. Life is unfair.
