@@ -1,1 +1,1 @@
-### There is always inequality in life. Some men are killed in a war and some men are wounded and some men never leave the country. Life is unfair.
+### Yes, peace can and must be won, to save the world from the terrible destruction of World War III.
