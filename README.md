@@ -1,1 +1,1 @@
-### Parenthood remains the greatest single preserve of the amateur.
+### We all dream. We dream vividly, depending on our nature. Our existence is beyond our explanation, whether we believe in God or we have religion or we're atheist.
