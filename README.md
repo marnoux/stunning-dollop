@@ -1,1 +1,1 @@
-### We all dream. We dream vividly, depending on our nature. Our existence is beyond our explanation, whether we believe in God or we have religion or we're atheist.
+### I haven't heard any music on the BBC World Service in a long time. Maybe I'm listening at the wrong times. But not one single piece of music.
