@@ -1,1 +1,1 @@
-### You feel a little older in the morning. By noon I feel about 55.
+### On the last morning of Virginia's bloodiest year since the Civil War, I built a fire and sat facing a window of darkness where at sunrise I knew I would find the sea.
