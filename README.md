@@ -1,1 +1,1 @@
-### On the last morning of Virginia's bloodiest year since the Civil War, I built a fire and sat facing a window of darkness where at sunrise I knew I would find the sea.
+### In the last analysis, even the best man is evil: in the last analysis, even the best woman is bad.
