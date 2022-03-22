@@ -1,1 +1,1 @@
-### In the last analysis, even the best man is evil: in the last analysis, even the best woman is bad.
+### Employees make the best dates. You don't have to pick them up and they're always tax-deductible.
