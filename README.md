@@ -1,1 +1,1 @@
-### Employees make the best dates. You don't have to pick them up and they're always tax-deductible.
+### And we ask the American people to play an important part of our layered defense. We ask for cooperation, patience and a commitment to vigilance in the face of a determined enemy.
