@@ -1,1 +1,1 @@
-### I have thought there was some advantage even in death, by which we mingle with the herd of common men.
+### Read the best books first, or you may not have a chance to read them at all.
