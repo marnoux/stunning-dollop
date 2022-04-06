@@ -1,1 +1,1 @@
-### Read the best books first, or you may not have a chance to read them at all.
+### Certain it is that a great responsibility rests upon the statesmen of all nations, not only to fulfill the promises for reduction in armaments, but to maintain the confidence of the people of the world in the hope of an enduring peace.
