@@ -1,1 +1,1 @@
-### I'm not an admirer of action movies. I just think, Oh my God, it must be so tiring.
+### We are more than just flesh and bones. There's a certain spiritual nature and something of the mind that we can't measure. We can't find it. With all our sophisticated equipment, we cannot monitor or define it, and yet it's there.
