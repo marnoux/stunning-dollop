@@ -1,1 +1,1 @@
-### We are more than just flesh and bones. There's a certain spiritual nature and something of the mind that we can't measure. We can't find it. With all our sophisticated equipment, we cannot monitor or define it, and yet it's there.
+### 3D is quite a lot more advanced in animated movies for live-action movies we're just taking baby steps, we're just in the beginning.
