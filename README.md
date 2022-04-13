@@ -1,1 +1,1 @@
-### We remain at peace with all nations, and no efforts on my part consistent with the preservation of our rights and the honor of the country shall be spared to maintain a position so consonant to our institutions.
+### Little men with little minds and little imaginations go through life in little ruts, smugly resisting all changes which would jar their little worlds.
