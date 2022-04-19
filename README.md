@@ -1,1 +1,1 @@
-### Beauty is being in harmony with what you are.
+### There is no greater feeling than hanging out with my dogs, or just walking around the land with our horses. My rescue ranch is is where I feel the most at peace and where I'm reminded of the simple things in life and let the chaos of my crazy work life fade away.
