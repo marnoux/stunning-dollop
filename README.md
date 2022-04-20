@@ -1,1 +1,1 @@
-### There is no greater feeling than hanging out with my dogs, or just walking around the land with our horses. My rescue ranch is is where I feel the most at peace and where I'm reminded of the simple things in life and let the chaos of my crazy work life fade away.
+### We tell them that we believe it will be beautiful because that is our specialty, we only create joy and beauty. We have never done a sad work. Through the drawings, we hope a majority will be able to visualize it.
