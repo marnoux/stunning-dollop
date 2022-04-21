@@ -1,1 +1,1 @@
-### We tell them that we believe it will be beautiful because that is our specialty, we only create joy and beauty. We have never done a sad work. Through the drawings, we hope a majority will be able to visualize it.
+### We should often blush for our very best actions, if the world did but see all the motives upon which they were done.
