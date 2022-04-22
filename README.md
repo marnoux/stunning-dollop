@@ -1,1 +1,1 @@
-### We should often blush for our very best actions, if the world did but see all the motives upon which they were done.
+### Strength of character may be learned at work, but beauty of character is learned at home.
