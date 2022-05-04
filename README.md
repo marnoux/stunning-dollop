@@ -1,1 +1,1 @@
-### I think it's probably best to work out in the morning to get it out of the way. My ultimate top tip is to drag yourself, even if you have to roll yourself out of your bed and in to a sit-up - it's really not that bad once you start.
+### I care so passionately about improving the quality of life for women and girls, not just here in the United States, but internationally as well. I am a single mom and I raised a daughter who is now a young adult.
