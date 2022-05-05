@@ -1,1 +1,1 @@
-### I care so passionately about improving the quality of life for women and girls, not just here in the United States, but internationally as well. I am a single mom and I raised a daughter who is now a young adult.
+### Though everything else may appear shallow and repulsive, even the smallest task in music is so absorbing, and carries us so far away from town, country, earth, and all worldly things, that it is truly a blessed gift of God.
