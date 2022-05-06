@@ -1,1 +1,1 @@
-### Though everything else may appear shallow and repulsive, even the smallest task in music is so absorbing, and carries us so far away from town, country, earth, and all worldly things, that it is truly a blessed gift of God.
+### I think first and foremost everybody should understand that Canadians are strongly committed to the system of universal health insurance, to the principle that your ability to pay does not determine your access to critical medical service.
