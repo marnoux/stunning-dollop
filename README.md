@@ -1,1 +1,1 @@
-### I think first and foremost everybody should understand that Canadians are strongly committed to the system of universal health insurance, to the principle that your ability to pay does not determine your access to critical medical service.
+### Never argue at the dinner table, for the one who is not hungry always gets the best of the argument.
