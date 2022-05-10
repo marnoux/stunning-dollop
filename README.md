@@ -1,1 +1,1 @@
-### Never argue at the dinner table, for the one who is not hungry always gets the best of the argument.
+### I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.
