@@ -1,1 +1,1 @@
-### I'm a typical middle child. I'm the mediator. The one that makes everything OK, puts their own needs aside to make sure everybody's happy. It's hard to change your nature, even with years and years of therapy.
+### I've never been out with any of the cast of Coronation Street. We're all very close friends so it's very much a professional attitude.
