@@ -1,1 +1,1 @@
-### I've never been out with any of the cast of Coronation Street. We're all very close friends so it's very much a professional attitude.
+### The Peace Corps is a sort of Howard Johnson's on the main drag into maturity.
