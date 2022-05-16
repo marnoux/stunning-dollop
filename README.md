@@ -1,1 +1,1 @@
-### Our national media refuses to report that even the Supreme Court did not say marriage was a human right in all cases nor did it say that the heterosexual definition violated anyone's right or that the heterosexual definition of marriage was unconstitutional.
+### Nothing surpasses the beauty and elegance of a bad idea.
