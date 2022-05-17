@@ -1,1 +1,1 @@
-### Nothing surpasses the beauty and elegance of a bad idea.
+### What beauty is, I know not, though it adheres to many things.
