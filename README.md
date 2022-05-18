@@ -1,1 +1,1 @@
-### What beauty is, I know not, though it adheres to many things.
+### I consider my mom and all my sisters my friends.
