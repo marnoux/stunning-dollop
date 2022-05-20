@@ -1,1 +1,1 @@
-### I was class mom at the preschool one year and I was pretty much asked not to do that again!
+### The growth of technology is such that it is not possible today for a nuclear physicist to switch into medical physics without training. The field is now much more technical. More training is needed to do the job.
