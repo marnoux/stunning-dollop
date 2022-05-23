@@ -1,1 +1,1 @@
-### The growth of technology is such that it is not possible today for a nuclear physicist to switch into medical physics without training. The field is now much more technical. More training is needed to do the job.
+### Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.
