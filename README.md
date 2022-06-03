@@ -1,1 +1,1 @@
-### Russia, if you're listening, I hope you're able to find the 30,000 emails that are missing
+### I love the poorly educated.
