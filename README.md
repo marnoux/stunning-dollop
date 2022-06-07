@@ -1,1 +1,1 @@
-### I love the poorly educated.
+### The beauty of me is that I'm very rich.
