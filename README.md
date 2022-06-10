@@ -1,1 +1,1 @@
-### I have an attention span that's as long as it has to be.
+### You know the funny thing? I don't get along with rich people.
