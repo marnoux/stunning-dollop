@@ -1,1 +1,1 @@
-### You know the funny thing? I don't get along with rich people.
+### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
