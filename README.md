@@ -1,1 +1,1 @@
-### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
+### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
