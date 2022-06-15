@@ -1,1 +1,1 @@
-### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
+### No, I meant [Obama is] the founder of ISIS, I do. He was the most valuable player. I give him the most valuable player award. I give her, too, by the way, Hillary Clinton.
