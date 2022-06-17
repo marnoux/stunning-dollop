@@ -1,1 +1,1 @@
-### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
+### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
