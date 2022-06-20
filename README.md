@@ -1,1 +1,1 @@
-### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
+### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
