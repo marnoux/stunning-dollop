@@ -1,1 +1,1 @@
-### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
+### Can you imagine that, the face of our next president? I mean, she's a woman, and I'm not supposed to say bad things, but really, folks, come on. Are we serious?
