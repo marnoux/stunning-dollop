@@ -1,1 +1,1 @@
-### I love the poorly educated.
+### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
