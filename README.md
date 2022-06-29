@@ -1,1 +1,1 @@
-### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
+### That could be a Mexican plane up there — they're getting ready to attack
