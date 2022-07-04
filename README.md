@@ -1,1 +1,1 @@
-### Bing bing, bong bong bong, bing bing.
+### My whole life is about winning. I don't lose often. I almost never lose.
