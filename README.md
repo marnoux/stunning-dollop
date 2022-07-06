@@ -1,1 +1,1 @@
-### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
+### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
