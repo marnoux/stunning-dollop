@@ -1,1 +1,1 @@
-### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
+### The LGBT community, the gay community, the lesbian community — they are so much in favor of what I’ve been saying over the last three or four days.
