@@ -1,1 +1,1 @@
-### I don’t think I’ve made mistakes. Every time somebody said I made a mistake, they do the polls and my numbers go up, so I guess I haven't made any mistakes.
+### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
