@@ -1,1 +1,1 @@
-### I've said if Ivanka weren't my daughter, perhaps I'd be dating her.
+### My whole life is about winning. I don't lose often. I almost never lose.
