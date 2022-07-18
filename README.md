@@ -1,1 +1,1 @@
-### My whole life is about winning. I don't lose often. I almost never lose.
+### The people of Crimea, from what I've heard, would rather be with Russia than where they were
