@@ -1,1 +1,1 @@
-### The people of Crimea, from what I've heard, would rather be with Russia than where they were
+### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
