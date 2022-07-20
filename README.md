@@ -1,1 +1,1 @@
-### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
+### If Hillary Clinton were a man, I don't think she would get 5% of the vote. And the beautiful thing is women don't like her
