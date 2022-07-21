@@ -1,1 +1,1 @@
-### If Hillary Clinton were a man, I don't think she would get 5% of the vote. And the beautiful thing is women don't like her
+### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
