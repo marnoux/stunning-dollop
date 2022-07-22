@@ -1,1 +1,1 @@
-### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
+### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
