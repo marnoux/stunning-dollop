@@ -1,1 +1,1 @@
-### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
+### I think the only difference between me and the other candidates is that I'm more honest and my women are more beautiful
