@@ -1,1 +1,1 @@
-### I think the only difference between me and the other candidates is that I'm more honest and my women are more beautiful
+### If she gets to pick her judges, nothing you can do, folks. Although, the Second Amendment people, maybe there is, I don't know.
