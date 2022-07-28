@@ -1,1 +1,1 @@
-### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
+### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
