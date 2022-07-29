@@ -1,1 +1,1 @@
-### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
+### I will be the greatest jobs president that God ever created.
