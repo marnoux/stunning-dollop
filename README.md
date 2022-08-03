@@ -1,1 +1,1 @@
-### I will be the greatest jobs president that God ever created.
+### You could see there was blood coming out of her eyes. Blood coming out of her wherever.
