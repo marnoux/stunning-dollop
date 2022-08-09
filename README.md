@@ -1,1 +1,1 @@
-### He’s a war hero because he was captured. I like people that weren’t captured.
+### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
