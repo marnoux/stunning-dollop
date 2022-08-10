@@ -1,1 +1,1 @@
-### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
+### I've said if Ivanka weren't my daughter, perhaps I'd be dating her.
