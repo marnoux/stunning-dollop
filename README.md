@@ -1,1 +1,1 @@
-### I don’t think I’ve made mistakes. Every time somebody said I made a mistake, they do the polls and my numbers go up, so I guess I haven't made any mistakes.
+### I'd like to use really foul language. I won't do it. I was going to say they're really full of s**t, but I won't say that.
