@@ -1,1 +1,1 @@
-### I'd like to use really foul language. I won't do it. I was going to say they're really full of s**t, but I won't say that.
+### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
