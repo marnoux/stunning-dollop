@@ -1,1 +1,1 @@
-### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
+### I have an attention span that's as long as it has to be.
