@@ -1,1 +1,1 @@
-### I will be the greatest jobs president that God ever created.
+### My whole life is about winning. I don't lose often. I almost never lose.
