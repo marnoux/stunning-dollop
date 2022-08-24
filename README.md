@@ -1,1 +1,1 @@
-### My whole life is about winning. I don't lose often. I almost never lose.
+### Saddam was a bad guy — really bad guy. But you know what he did well? He killed terrorists. He did that so good
