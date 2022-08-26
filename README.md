@@ -1,1 +1,1 @@
-### He’s a war hero because he was captured. I like people that weren’t captured.
+### The people of Crimea, from what I've heard, would rather be with Russia than where they were
