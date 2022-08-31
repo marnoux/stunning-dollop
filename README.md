@@ -1,1 +1,1 @@
-### No, I meant [Obama is] the founder of ISIS, I do. He was the most valuable player. I give him the most valuable player award. I give her, too, by the way, Hillary Clinton.
+### We're gonna have businesses that used to be in New Hampshire, that are now in Mexico, come back to New Hampshire, and you can tell them to go fuck themselves.
