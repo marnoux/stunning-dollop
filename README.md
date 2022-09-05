@@ -1,1 +1,1 @@
-### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
+### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
