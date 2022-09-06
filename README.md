@@ -1,1 +1,1 @@
-### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
+### Pregnancy is a wonderful thing for the woman, it’s a wonderful thing for the husband, it’s certainly an inconvenience for a business.
