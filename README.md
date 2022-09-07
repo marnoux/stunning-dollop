@@ -1,1 +1,1 @@
-### Pregnancy is a wonderful thing for the woman, it’s a wonderful thing for the husband, it’s certainly an inconvenience for a business.
+### He’s a war hero because he was captured. I like people that weren’t captured.
