@@ -1,1 +1,1 @@
-### He’s a war hero because he was captured. I like people that weren’t captured.
+### There were people that were cheering on the other side of New Jersey, where you have large Arab populations. They were cheering as the World Trade Center came down.
