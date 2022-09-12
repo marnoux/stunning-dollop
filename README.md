@@ -1,1 +1,1 @@
-### Today, Iraq is Harvard for terrorism.
+### I will be the greatest jobs president that God ever created.
