@@ -1,1 +1,1 @@
-### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
+### When Mexico sends its people, they're not sending their best. They're sending people that have lots of problems...they're bringing drugs, they're bringing crime. They're rapists.
