@@ -1,1 +1,1 @@
-### When Mexico sends its people, they're not sending their best. They're sending people that have lots of problems...they're bringing drugs, they're bringing crime. They're rapists.
+### Can you imagine that, the face of our next president? I mean, she's a woman, and I'm not supposed to say bad things, but really, folks, come on. Are we serious?
