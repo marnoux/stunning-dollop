@@ -1,1 +1,1 @@
-### Can you imagine that, the face of our next president? I mean, she's a woman, and I'm not supposed to say bad things, but really, folks, come on. Are we serious?
+### I have a great relationship with the blacks.
