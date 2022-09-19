@@ -1,1 +1,1 @@
-### I have a great relationship with the blacks.
+### Today, Iraq is Harvard for terrorism.
