@@ -1,1 +1,1 @@
-### I have a great relationship with the blacks.
+### If she gets to pick her judges, nothing you can do, folks. Although, the Second Amendment people, maybe there is, I don't know.
