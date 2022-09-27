@@ -1,1 +1,1 @@
-### I think the only difference between me and the other candidates is that I'm more honest and my women are more beautiful
+### I don’t think I’ve made mistakes. Every time somebody said I made a mistake, they do the polls and my numbers go up, so I guess I haven't made any mistakes.
