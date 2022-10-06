@@ -1,1 +1,1 @@
-### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
+### [Putin] is not going into Ukraine, OK, just so you understand. He’s not gonna go into Ukraine, all right? You can mark it down. You can put it down.
