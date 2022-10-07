@@ -1,1 +1,1 @@
-### [Putin] is not going into Ukraine, OK, just so you understand. He’s not gonna go into Ukraine, all right? You can mark it down. You can put it down.
+### I think the only difference between me and the other candidates is that I'm more honest and my women are more beautiful
