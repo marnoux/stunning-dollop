@@ -1,1 +1,1 @@
-### I think the only difference between me and the other candidates is that I'm more honest and my women are more beautiful
+### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
