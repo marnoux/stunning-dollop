@@ -1,1 +1,1 @@
-### Can you imagine that, the face of our next president? I mean, she's a woman, and I'm not supposed to say bad things, but really, folks, come on. Are we serious?
+### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
