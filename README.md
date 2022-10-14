@@ -1,1 +1,1 @@
-### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
+### We're gonna have businesses that used to be in New Hampshire, that are now in Mexico, come back to New Hampshire, and you can tell them to go fuck themselves.
