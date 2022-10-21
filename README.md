@@ -1,1 +1,1 @@
-### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
+### We're gonna have businesses that used to be in New Hampshire, that are now in Mexico, come back to New Hampshire, and you can tell them to go fuck themselves.
