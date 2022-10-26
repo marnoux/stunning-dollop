@@ -1,1 +1,1 @@
-### The people of Crimea, from what I've heard, would rather be with Russia than where they were
+### Saddam was a bad guy — really bad guy. But you know what he did well? He killed terrorists. He did that so good
