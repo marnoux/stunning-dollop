@@ -1,1 +1,1 @@
-### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
+### Saddam was a bad guy — really bad guy. But you know what he did well? He killed terrorists. He did that so good
