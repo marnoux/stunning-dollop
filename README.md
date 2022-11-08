@@ -1,1 +1,1 @@
-### Bing bing, bong bong bong, bing bing.
+### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
