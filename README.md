@@ -1,1 +1,1 @@
-### If Hillary Clinton can't satisfy her husband what makes her think she can satisfy America.
+### No, I meant [Obama is] the founder of ISIS, I do. He was the most valuable player. I give him the most valuable player award. I give her, too, by the way, Hillary Clinton.
