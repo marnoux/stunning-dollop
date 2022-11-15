@@ -1,1 +1,1 @@
-### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
+### There were people that were cheering on the other side of New Jersey, where you have large Arab populations. They were cheering as the World Trade Center came down.
