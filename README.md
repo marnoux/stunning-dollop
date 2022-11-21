@@ -1,1 +1,1 @@
-### I have an attention span that's as long as it has to be.
+### Today, Iraq is Harvard for terrorism.
