@@ -1,1 +1,1 @@
-### You know the funny thing? I don't get along with rich people.
+### In many respects, you know, they honor President Obama. He's the founder of ISIS. He's the founder of ISIS. He's the founder. He founded ISIS.
