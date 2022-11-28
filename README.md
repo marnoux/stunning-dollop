@@ -1,1 +1,1 @@
-### In many respects, you know, they honor President Obama. He's the founder of ISIS. He's the founder of ISIS. He's the founder. He founded ISIS.
+### My whole life is about winning. I don't lose often. I almost never lose.
