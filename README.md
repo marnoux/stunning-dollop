@@ -1,1 +1,1 @@
-### My whole life is about winning. I don't lose often. I almost never lose.
+### I love the poorly educated.
