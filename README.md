@@ -1,1 +1,1 @@
-### I love the poorly educated.
+### You know what I hate? There's a guy totally disruptive, throwing punches, we're not allowed punch back anymore. ... I'd like to punch him in the face, I'll tell ya.
