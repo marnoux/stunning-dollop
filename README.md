@@ -1,1 +1,1 @@
-### You know what I hate? There's a guy totally disruptive, throwing punches, we're not allowed punch back anymore. ... I'd like to punch him in the face, I'll tell ya.
+### You could see there was blood coming out of her eyes. Blood coming out of her wherever.
