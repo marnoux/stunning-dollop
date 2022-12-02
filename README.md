@@ -1,1 +1,1 @@
-### You could see there was blood coming out of her eyes. Blood coming out of her wherever.
+### The LGBT community, the gay community, the lesbian community — they are so much in favor of what I’ve been saying over the last three or four days.
