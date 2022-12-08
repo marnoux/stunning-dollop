@@ -1,1 +1,1 @@
-### Justice Ginsburg of the U.S. Supreme Court has embarrassed all by making very dumb political statements about me. Her mind is shot - resign!
+### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
