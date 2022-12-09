@@ -1,1 +1,1 @@
-### Happy Cinco de Mayo! The best taco bowls are made in Trump Tower Grill. I love Hispanics!
+### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
