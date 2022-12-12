@@ -1,1 +1,1 @@
-### I could stand in the middle of Fifth Avenue and shoot somebody, and I wouldn't lose any voters
+### Today, Iraq is Harvard for terrorism.
