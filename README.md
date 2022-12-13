@@ -1,1 +1,1 @@
-### Today, Iraq is Harvard for terrorism.
+### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
