@@ -1,1 +1,1 @@
-### No, I meant [Obama is] the founder of ISIS, I do. He was the most valuable player. I give him the most valuable player award. I give her, too, by the way, Hillary Clinton.
+### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
