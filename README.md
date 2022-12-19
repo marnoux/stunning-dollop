@@ -1,1 +1,1 @@
-### I was gonna hit one guy in particular, a very little guy. I was gonna hit this guy so hard his head would spin and he wouldn’t know what the hell happened
+### [Putin] is not going into Ukraine, OK, just so you understand. He’s not gonna go into Ukraine, all right? You can mark it down. You can put it down.
