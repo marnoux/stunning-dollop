@@ -1,1 +1,1 @@
-### In many respects, you know, they honor President Obama. He's the founder of ISIS. He's the founder of ISIS. He's the founder. He founded ISIS.
+### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
