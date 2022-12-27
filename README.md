@@ -1,1 +1,1 @@
-### I'd like to use really foul language. I won't do it. I was going to say they're really full of s**t, but I won't say that.
+### We're gonna have businesses that used to be in New Hampshire, that are now in Mexico, come back to New Hampshire, and you can tell them to go fuck themselves.
