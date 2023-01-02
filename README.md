@@ -1,1 +1,1 @@
-### If you see somebody getting ready to throw a tomato, knock the crap out of them, would you? Seriously. 
+### The beauty of me is that I'm very rich.
