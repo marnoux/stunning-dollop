@@ -1,1 +1,1 @@
-### The beauty of me is that I'm very rich.
+### Today, Iraq is Harvard for terrorism.
