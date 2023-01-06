@@ -1,1 +1,1 @@
-### Do you mind if I sit back a little? Because your breath is very bad.
+### You know, it really doesn`t matter what [the media] write as long as you`ve got a young and beautiful piece of ass.
