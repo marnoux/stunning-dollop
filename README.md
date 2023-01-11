@@ -1,1 +1,1 @@
-### If you see somebody getting ready to throw a tomato, knock the crap out of them, would you? Seriously. 
+### When Mexico sends its people, they're not sending their best. They're sending people that have lots of problems...they're bringing drugs, they're bringing crime. They're rapists.
