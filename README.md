@@ -1,1 +1,1 @@
-### When Mexico sends its people, they're not sending their best. They're sending people that have lots of problems...they're bringing drugs, they're bringing crime. They're rapists.
+### Pregnancy is a wonderful thing for the woman, it’s a wonderful thing for the husband, it’s certainly an inconvenience for a business.
