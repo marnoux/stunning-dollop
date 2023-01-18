@@ -1,1 +1,1 @@
-### I have a great relationship with the blacks.
+### I've had a beautiful, I've had a flawless campaign. You'll be writing books about this campaign.
