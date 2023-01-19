@@ -1,1 +1,1 @@
-### I've had a beautiful, I've had a flawless campaign. You'll be writing books about this campaign.
+### I don’t think I’ve made mistakes. Every time somebody said I made a mistake, they do the polls and my numbers go up, so I guess I haven't made any mistakes.
