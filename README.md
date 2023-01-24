@@ -1,1 +1,1 @@
-### I think I've made a lot of sacrifices. I work very, very hard. I've created thousands and thousands of jobs, tens of thousands of jobs, built great structures. I've had tremendous success. I think I've done a lot.
+### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
