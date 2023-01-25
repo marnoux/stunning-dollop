@@ -1,1 +1,1 @@
-### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
+### The people of Crimea, from what I've heard, would rather be with Russia than where they were
