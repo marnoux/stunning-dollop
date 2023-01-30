@@ -1,1 +1,1 @@
-### You could see there was blood coming out of her eyes. Blood coming out of her wherever.
+### There were people that were cheering on the other side of New Jersey, where you have large Arab populations. They were cheering as the World Trade Center came down.
