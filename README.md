@@ -1,1 +1,1 @@
-### There were people that were cheering on the other side of New Jersey, where you have large Arab populations. They were cheering as the World Trade Center came down.
+### If Hillary Clinton were a man, I don't think she would get 5% of the vote. And the beautiful thing is women don't like her
