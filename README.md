@@ -1,1 +1,1 @@
-### If Hillary Clinton were a man, I don't think she would get 5% of the vote. And the beautiful thing is women don't like her
+### If you see somebody getting ready to throw a tomato, knock the crap out of them, would you? Seriously. 
