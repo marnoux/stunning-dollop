@@ -1,1 +1,1 @@
-### If you see somebody getting ready to throw a tomato, knock the crap out of them, would you? Seriously. 
+### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
