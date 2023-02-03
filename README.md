@@ -1,1 +1,1 @@
-### I was the one that really broke the glass ceiling on behalf of women, more than anybody in the construction industry
+### When Mexico sends its people, they're not sending their best. They're sending people that have lots of problems...they're bringing drugs, they're bringing crime. They're rapists.
