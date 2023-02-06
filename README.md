@@ -1,1 +1,1 @@
-### I like kids. I mean, I won’t do anything to take care of them. I’ll supply funds, and she’ll take care of the kids.
+### You know the funny thing? I don't get along with rich people.
