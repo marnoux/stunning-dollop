@@ -1,1 +1,1 @@
-### Appreciate the congrats for being right on radical Islamic terrorism, I don't want congrats, I want toughness & vigilance. We must be smart!
+#Nothing to see here, move along
