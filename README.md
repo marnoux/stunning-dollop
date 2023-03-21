@@ -1,1 +1,1 @@
-#Herpderp, shoulda check if it does really compile.
+#Refactored configuration.
