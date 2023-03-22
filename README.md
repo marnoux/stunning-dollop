@@ -1,1 +1,1 @@
-#Refactored configuration.
+#NOJIRA: No cry
