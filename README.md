@@ -1,1 +1,1 @@
-#Were no strangers to love
+#.
