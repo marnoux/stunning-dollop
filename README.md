@@ -1,1 +1,1 @@
-#pam anderson is going to love me.
+#Nobody had ever created a function like this one before.
