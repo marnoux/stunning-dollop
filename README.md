@@ -1,1 +1,1 @@
-#Nobody had ever created a function like this one before.
+#Make Sure You Are Square With Your God Before Trying To Merge This
