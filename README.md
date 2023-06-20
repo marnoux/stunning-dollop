@@ -1,1 +1,1 @@
-#(c) Microsoft 1988
+#download half the damn internet to parse a pdf
