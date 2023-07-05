@@ -1,1 +1,1 @@
-#fixed some minor stuff, might need some additional work.
+#who has two thumbs and is a genius? not this guy!
