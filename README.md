@@ -1,1 +1,1 @@
-#forgot were not using a smart language
+#Fix hard-coded [object Object] string (thanks!)
