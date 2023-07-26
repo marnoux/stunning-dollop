@@ -1,1 +1,1 @@
-#Fixed some shit
+#Now added delete for real
