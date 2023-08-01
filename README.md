@@ -1,1 +1,1 @@
-#I expected something different.
+#Reset error count between rows. herpderp
