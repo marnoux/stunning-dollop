@@ -1,1 +1,1 @@
-#bug fix
+#Added some NullPointerExceptions - Happy easter, you bastards! :D
