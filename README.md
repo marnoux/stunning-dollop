@@ -1,1 +1,1 @@
-#squash me
+#fixed errors in the previous commit
