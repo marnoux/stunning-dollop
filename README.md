@@ -1,1 +1,1 @@
-#Derp, asset redirection in dev mode
+#Its time to go home
