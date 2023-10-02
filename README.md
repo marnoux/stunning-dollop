@@ -1,1 +1,1 @@
-#more fixes
+#Added a banner to the default admin page. Please have mercy on me =(
