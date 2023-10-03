@@ -1,1 +1,1 @@
-#Added a banner to the default admin page. Please have mercy on me =(
+#Abandon all hope, ye who enter here.
