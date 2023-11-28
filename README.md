@@ -1,1 +1,1 @@
-#Version control is awful
+#I understand that its an antipattern, but its convenient.
