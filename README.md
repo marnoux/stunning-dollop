@@ -1,1 +1,1 @@
-#For the statistics only
+#Refactored configuration.
