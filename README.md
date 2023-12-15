@@ -1,1 +1,1 @@
-#We Had To Use Dark Magic To Make This Work
+#It was the best of times, it was the worst of times
