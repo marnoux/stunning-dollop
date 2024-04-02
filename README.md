@@ -1,1 +1,1 @@
-#git stash *
+#this is how we generate our shit.
