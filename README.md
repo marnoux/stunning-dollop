@@ -1,1 +1,1 @@
-#Weve known each other for so long
+#Use a real JS construct, WTF knows why this works in chromium.
