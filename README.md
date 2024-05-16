@@ -1,1 +1,1 @@
-#Does anyone read this? Ill be at the coffee shop accross the street.
+#Added a banner to the default admin page. Please have mercy on me =(
