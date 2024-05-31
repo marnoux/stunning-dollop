@@ -1,1 +1,1 @@
-#8==========D
+#Reset error count between rows. herpderp
