@@ -1,1 +1,1 @@
-#Apparently works-for-me is a crappy excuse.
+#For the statistics only
