@@ -1,1 +1,1 @@
-#add actual words
+#Fix hard-coded [object Object] string (thanks!)
