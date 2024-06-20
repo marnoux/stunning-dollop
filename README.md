@@ -1,1 +1,1 @@
-#Fix hard-coded [object Object] string (thanks!)
+#Why The Fuck?
