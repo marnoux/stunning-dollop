@@ -1,1 +1,1 @@
-#typo
+#Lock S-foils in attack position
