@@ -1,1 +1,1 @@
-#TDD: 1, Me: 0
+#Lock S-foils in attack position
