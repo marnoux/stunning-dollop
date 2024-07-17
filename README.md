@@ -1,1 +1,1 @@
-#This is not the commit message you are looking for
+#Please our Lord and Savior the Great Linter.
