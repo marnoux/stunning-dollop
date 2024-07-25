@@ -1,1 +1,1 @@
-#Code was clean until manager requested to f*** it up
+#Next time someone asks you how to fix an infinite loop, remember this commit
