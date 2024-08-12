@@ -1,1 +1,1 @@
-#No cap
+#(c) Microsoft 1988
