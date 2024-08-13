@@ -1,1 +1,1 @@
-#(c) Microsoft 1988
+#:q!
