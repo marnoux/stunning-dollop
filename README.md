@@ -1,1 +1,1 @@
-#Itd be nice if type errors caused the compiler to issue a type error
+#really ignore ignored worsd
