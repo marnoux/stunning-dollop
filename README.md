@@ -1,1 +1,1 @@
-#forgot were not using a smart language
+#I would rather be playing Factorio.
