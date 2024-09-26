@@ -1,1 +1,1 @@
-#ALL SORTS OF THINGS
+#Become a programmer, they said. Itll be fun, they said.
