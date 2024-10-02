@@ -1,1 +1,1 @@
-#Just committing so I can go home
+#I understand that its an antipattern, but its convenient.
