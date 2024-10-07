@@ -1,1 +1,1 @@
-#This is my code. My code is amazing.
+#Use a real JS construct, WTF knows why this works in chromium.
