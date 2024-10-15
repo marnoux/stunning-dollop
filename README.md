@@ -1,1 +1,1 @@
-#Switched off unit test 8 because the build had to go out now and there was no time to fix it properly.
+#--help
