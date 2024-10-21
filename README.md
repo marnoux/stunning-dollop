@@ -1,1 +1,1 @@
-#omg what have I done?
+#Pro Tip: Read Copilot output before pushing it
