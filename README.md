@@ -1,1 +1,1 @@
-#Pro Tip: Read Copilot output before pushing it
+#Its possible! you can turn a 50-line code chunk into just 3 lines. Heres how
