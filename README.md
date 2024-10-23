@@ -1,1 +1,1 @@
-#Its possible! you can turn a 50-line code chunk into just 3 lines. Heres how
+#This is not the commit message you are looking for
