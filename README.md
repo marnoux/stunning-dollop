@@ -1,1 +1,1 @@
-#permanent hack, do not revert
+#NSA backdoor - ignore
