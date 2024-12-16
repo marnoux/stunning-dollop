@@ -1,1 +1,1 @@
-#this is Spartaaaaaaaa
+#fixed shit that havent been fixed in last commit
