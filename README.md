@@ -1,1 +1,1 @@
-#NOJIRA: No cry
+#try our sister game minceraft!
