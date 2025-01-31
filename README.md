@@ -1,1 +1,1 @@
-#bump to 0.0.3-dev:wq
+#Well the book was obviously wrong.
