@@ -1,1 +1,1 @@
-#tl;dr
+#SHIT ===> GOLD
