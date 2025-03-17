@@ -1,1 +1,1 @@
-#SHIT ===> GOLD
+#Fixed errors
