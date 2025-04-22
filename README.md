@@ -1,1 +1,1 @@
-#trying to do something right!
+#starting the service is always better
