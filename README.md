@@ -1,1 +1,1 @@
-#weslindsay is a savage
+#Code was clean until manager requested to f*** it up
