@@ -1,1 +1,1 @@
-#Code was clean until manager requested to f*** it up
+#This is a basic implementation that works.
