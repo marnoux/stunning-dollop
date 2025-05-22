@@ -1,1 +1,1 @@
-#fixed the israeli-palestinian conflict
+#Merge pull request #67 from Lazersmoke/fix-andys-shit Fix andys shit
