@@ -1,1 +1,1 @@
-#Trust me, Im an engineer!... What the f*ck did just happened here?
+#copy and paste is not a design pattern
