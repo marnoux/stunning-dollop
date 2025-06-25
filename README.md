@@ -1,1 +1,1 @@
-#Peopleware Chapter 8: You Never Get Anything Done around Here between 9 and 5.
+#remove certain things and added stuff
