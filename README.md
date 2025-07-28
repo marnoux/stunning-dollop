@@ -1,1 +1,1 @@
-#Dont tell me youre too blind to see
+#You should have trusted me.
