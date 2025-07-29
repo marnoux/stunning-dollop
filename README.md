@@ -1,1 +1,1 @@
-#You should have trusted me.
+#GABE, WE WENT OVER THIS. C++ IO SUCKS.
