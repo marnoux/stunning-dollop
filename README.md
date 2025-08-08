@@ -1,1 +1,1 @@
-#added super-widget 2.0.
+#Merge pull request #67 from Lazersmoke/fix-andys-shit Fix andys shit
