@@ -1,1 +1,1 @@
-#Either Hot Shit or Total Bollocks
+#removed echo and die statements, lolz.
