@@ -1,1 +1,1 @@
-#Yep, Tony was right on this one.
+#Now its all microservices, I hope the fad persists.
