@@ -1,1 +1,1 @@
-#Issue #2 is now Issue #1
+#fixed shit that havent been fixed in last commit
