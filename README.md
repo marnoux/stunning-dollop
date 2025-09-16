@@ -1,1 +1,1 @@
-#fixed shit that havent been fixed in last commit
+#Itd be nice if type errors caused the compiler to issue a type error
