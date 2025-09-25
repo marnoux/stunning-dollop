@@ -1,1 +1,1 @@
-#Nothing to see here, move along
+#removed echo and die statements, lolz.
