@@ -1,1 +1,1 @@
-#removed echo and die statements, lolz.
+#pam anderson is going to love me.
