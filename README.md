@@ -1,1 +1,1 @@
-#Derpy hooves
+#removed echo and die statements, lolz.
