@@ -1,1 +1,1 @@
-#small is a real HTML tag, who knew.
+#Corrected mistakes
