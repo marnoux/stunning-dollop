@@ -1,1 +1,1 @@
-#git stash *
+#$(init 0)
