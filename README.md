@@ -1,1 +1,1 @@
-#forgot were not using a smart language
+#Improving the fix
