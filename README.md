@@ -1,1 +1,1 @@
-#Somebody set up us the bomb.
+#We know the game and were gonna play it
