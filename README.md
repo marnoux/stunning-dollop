@@ -1,1 +1,1 @@
-#making code less cancer
+#We know the game and were gonna play it
