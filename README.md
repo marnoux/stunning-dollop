@@ -1,1 +1,1 @@
-#Its getting hard to keep up with the crap Ive trashed
+#Now its all microservices, I hope the fad persists.
