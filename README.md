@@ -1,1 +1,1 @@
-#We know the game and were gonna play it
+#who has two thumbs and is a genius? not this guy!
