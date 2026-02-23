@@ -1,1 +1,1 @@
-#Why The Fuck?
+#Added some NullPointerExceptions - Happy easter, you bastards! :D
