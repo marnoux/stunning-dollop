@@ -1,1 +1,1 @@
-#WHO THE FUCK CAME UP WITH MAKE?
+#commented out failing tests
