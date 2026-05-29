@@ -1,1 +1,1 @@
-#extra debug for stuff module
+#Nobody had ever created a function like this one before.
