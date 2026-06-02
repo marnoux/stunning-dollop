@@ -1,1 +1,1 @@
-#Your commit is writing checks your merge cant cash.
+#whatthecommit.com’s server IP address could not be found.
