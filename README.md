@@ -1,1 +1,1 @@
-#DEAL WITH IT
+#workaround for ant being a pile of fail
