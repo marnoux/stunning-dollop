@@ -1,1 +1,1 @@
-#clarify further the brokenness of C++. why the f*** are we using C++?
+#Duh
