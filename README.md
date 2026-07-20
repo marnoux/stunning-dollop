@@ -1,1 +1,1 @@
-#Duh
+#holy shit its functional
