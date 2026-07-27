@@ -1,1 +1,1 @@
-#zanza00 is a savage
+#Do things better, faster, stronger
