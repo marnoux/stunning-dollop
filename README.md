@@ -1,1 +1,1 @@
-#Dont Ask Me, I Have No Idea Why This Works Either
+#Please our Lord and Savior the Great Linter.
