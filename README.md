@@ -1,1 +1,1 @@
-#Who has two thumbs and remembers the rudiments of his linear algebra courses?  Apparently, this guy.
+#Thank god for Copilot
