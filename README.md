@@ -1,1 +1,1 @@
-#Errare humanum est.
+#remove certain things and added stuff
