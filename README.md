@@ -1,1 +1,1 @@
-#Added some NullPointerExceptions - Happy easter, you bastards! :D
+#Git wants e to commit, I want to sleep. Take me sweet void.
