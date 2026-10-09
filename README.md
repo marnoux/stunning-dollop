@@ -1,1 +1,1 @@
-#WHO THE FUCK CAME UP WITH MAKE?
+#fixed conflicts (LOL merge -s ours; push -f)
